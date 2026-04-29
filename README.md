@@ -1,0 +1,1 @@
+# Astrostatistika2026
